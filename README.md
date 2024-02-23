@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jessiepinkman69
-- 👀 I’m interested in bluemeth
+- 👀 I’m interested in bluecrystal
 - 🌱 I’m currently learning heisenbergs secret formula
 - 💞️ I’m looking to collaborate on Gush Frings Corpor.
 - 📫 How to reach me, at indiana soil
